@@ -1,3 +1,3 @@
 # RESPOWERR
-#### Callidos Imperator
+### - [Callidos](https://www.github.com/callidos) founder.
 
